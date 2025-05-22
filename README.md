@@ -72,4 +72,5 @@ We’d love to build something for you!
 📧 Email: nezuradesigns@gmail.com
 
 📱 WhatsApp: +27 698219118 
+
 You can also DM us on Instagram or send a message via email to get started.
